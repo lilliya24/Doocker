@@ -1,0 +1,1 @@
+![04.12.png](..%2F..%2FDocuments%2FLightshot%2F%D1%E5%F0%E1%F1%EA%E8%E9%20%FF%E7%FB%EA%2F04.12.png)
